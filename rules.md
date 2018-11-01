@@ -1,0 +1,6 @@
+## The tl;dr
+
+1. **This is a moderated space that exists for the benefit of trans and questioning folks.** If you don't fit that profile, that's fine! Welcome! But you're here as a guest. Please remember to make space for trans people to do their thing. On gender topics, please listen more than you talk. It's okay to ask questions, but please don't interrupt to ask for background. If you contribute to these discussions, you are expected to do so as an informed cis ally. (supplementary reading: how to ask questions without interrupting)
+2. The names and pronouns in members' profiles are the ones they would like to use on this server. **Honoring them is not optional.** Please update yours accordingly, and don't necessarily assume that those are the names and pronouns to use on other servers!
+3. If someone in a marginalized group says a term is a slur, take their word for it. **Specifically, the terms "trap" and "shemale" are regarded as slurs and the mods will treat them as such.**
+4. **Please, no wink wink nudge nudge jokes about people we think might be eggs.** If you want to talk with someone about gender stuff empathetically, go for it. If you don't know them well enough to do that, it's probably best just to honor their expressed gender identity and leave the speculation to people who know them better.
