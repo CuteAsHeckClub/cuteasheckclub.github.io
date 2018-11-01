@@ -1,4 +1,4 @@
-## The tl;dr
+## The Rules
 
 1. **This is a moderated space that exists for the benefit of trans and questioning folks.** If you don't fit that profile, that's fine! Welcome! But you're here as a guest. Please remember to make space for trans people to do their thing. On gender topics, please listen more than you talk. It's okay to ask questions, but please don't interrupt to ask for background. If you contribute to these discussions, you are expected to do so as an informed cis ally. (supplementary reading: how to ask questions without interrupting)
 2. The names and pronouns in members' profiles are the ones they would like to use on this server. **Honoring them is not optional.** Please update yours accordingly, and don't necessarily assume that those are the names and pronouns to use on other servers!
